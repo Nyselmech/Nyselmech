@@ -26,4 +26,4 @@ My mission is to contribute to the global advancement of space technologies and 
 
 ### 📫 Get in Touch
 - 📧 Email: ozan.y00@gmail.com
-- 💼 [LinkedIn](https://www.linkedin.com/in/ozanyildizz/)
+- 💼 [LinkedIn](https://www.linkedin.com/in/ozanyildiz-/)
